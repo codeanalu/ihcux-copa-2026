@@ -1,3 +1,6 @@
+<img width="1553" height="643" alt="trabalho png" src="https://github.com/user-attachments/assets/f6d2b682-91cb-448d-a62b-1d204405504c" />
+
+
 Integrantes: Nicolas, Ana, Nátali,  Ricardo e Samuel
 
 Problema principal:
